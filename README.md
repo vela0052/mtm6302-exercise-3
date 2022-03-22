@@ -1,0 +1,1 @@
+mtm6302-exercise-3 Job Listing Assigment Name: Julian Ricardo Vela Bernate Student # 41008995 Completes the assigment
